@@ -1,1 +1,1 @@
-![GitHub Profile](https://github.com/Kuldeep-Rajpurohit)
+[GitHub Profile](https://github.com/Kuldeep-Rajpurohit)
